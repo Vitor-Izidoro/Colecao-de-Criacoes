@@ -1,2 +1,2 @@
-# Colecao-de-Criacoes
-Esse repositório contem mais um pouco sobre mim como pessoa
+# Coleção de criações
+aqui vou falar um pouco mais sobre mim, fui um organizador do grupo da Pastoral da antiga TECPUC, que era um grupo de alunos focado em fazer atividades culturais, tanto para os alunos quanto para pessoas da comunidade. Atualmente sou membro do centro acadêmico de ciência da Computação, ajudando na organização de eventos para o curso. Ajudo a organizar subidas de morro em grupo junto com meus amigos que cursam biologia e gosto bastante de esportes, principalmente jiu-jitsu 
